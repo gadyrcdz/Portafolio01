@@ -1,4 +1,6 @@
-Gadyr Calderón Díaz- 2022327328\n
+# Portafolio 01
+_Gadyr Calderón Díaz-2022327328_
 
-Portafolio 01\n
------Investigación aginada la clase 23-07-2024----------
+## Investigación 1-Clase 23-07-2024 🚀
+
+
